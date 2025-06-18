@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">My name is Mariana Jaired Ruiz Amaro and I'm a Undergraduate student in Agrigenomic Sciences at UNAM ENES León, MX</p>
+<p align="left">My name is Mariana Jaired Ruíz Amaro and I'm a Undergraduate student in Agrigenomic Sciences at UNAM ENES León, MX</p>
 
 ###
 
