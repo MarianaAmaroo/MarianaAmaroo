@@ -65,3 +65,11 @@
 📫 Let’s connect
 
 📧 Email: mariana_amaro@comunidad.unam.mx or marianaamaro0409@gmail.com
+
+---
+
+<p align="center">
+  <em>"I can do all things through Christ who strengthens me."</em><br>
+  <strong>— Philippians 4:13</strong>
+</p>
+
